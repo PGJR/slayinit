@@ -1,0 +1,4 @@
+slayinit
+========
+
+SUCK A DICK
